@@ -1,5 +1,5 @@
 - hey! i'm joseph, but you can call me joey or joe; my nickname is idia so i don't mind that either
-- my pronouns are he/him but i also dont mind xe/xem online
+- my pronouns are he/they but i also dont mind xe/xem online
 - i like twisted wonderland, pokémon, the muppets, dungeons & dragons, paleontology + more
 - primarily learning html & python
 - i have generalized and social anxiety as well as combined type adhd
